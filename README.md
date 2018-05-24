@@ -1,0 +1,3 @@
+# HomeOrganization
+
+Having a handy home organization app can make filing a claim smoother by keeping your belongings documented and organized. With a home inventory app at hand, you may look inside your inventory and view exactly what you’re dealing with. Snapping a photo of your receipt and keeping it safe inside the Home Organization app can be useful. You may also view the products net worth on the app. You may input photos of items, serial numbers, descriptions and purchase amounts. With the touch of a button, you may account for all the material destroyed and get your money’s worth. You may also send a photo of the receipt or item information directly to insurance agencies for compensation through their company.
